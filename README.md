@@ -186,7 +186,7 @@ Unlimited VPS Install<br>
 </b>
 <b>
 <h3>Contact Me To Order The License Key </h3>
-Telegram = https://t.me/wildyvpn<br>
+Telegram = https://t.me/wildyvpn_id<br>
 Whatsapp = https://wa.me/6285830878000<br>
 Email    = wildyverando.net@gmail.com<br>
 </b>
